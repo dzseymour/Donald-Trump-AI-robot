@@ -2,13 +2,18 @@ We probably can structure the ClownStick's brain into various trigger points.
 
 Suggestions 
 
-- walls
+- walls/borders
 - Kim Jong Un
 - Refugees
 - Making america great again
 - CNN 
 - The muslim 'problem'
 - The art of the deal
+- Elephants
+- Fake News
+- Vendettas
+- Cocaine problems/Sniffing
+
 
 
 Regarding language, perhaps we should choose something which make you paranoid, and leads to mental break-downs, to experience the clownstick's thought processes as closely as possible. A strong contender may be assembly. 
